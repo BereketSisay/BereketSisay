@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BereketSisay
-- 👀 I’m interested in software development
+- 👀 I’m  interested in software development
 
 - 💞️ I’m looking to collaborate on projects 
 - 📫 How to reach me  bereketsisayderese25@gmail.com
